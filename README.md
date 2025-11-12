@@ -1,5 +1,5 @@
 # # Hi — I'm Nkiruka Theresa Nnadozie 👋
-**PhD candidate | Natural Products Chemist | Lecturer**  
+**PhD Holder | Natural Products Chemist | Lecturer**  
 University of Abuja / Federal University of Lafia — research on _Cleome gynandra_ phytochemicals.
 
 ## 🔬 Research & interests
