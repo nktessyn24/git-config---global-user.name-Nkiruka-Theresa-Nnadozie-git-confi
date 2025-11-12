@@ -13,7 +13,7 @@ University of Abuja / Federal University of Lafia — research on _Cleome gynand
 - **Teaching-resources** — exam questions and lecture notes (CHM 315 / CHM 422)
 
 ## 📫 Contact
-- Email: your.email@example.com
-- LinkedIn: linkedin.com/in/yourprofile
+- Email: theresa.nnadozie@fulafia.edu.ng
+- LinkedIn: linkedin.com/in/Theresa Nnadozie 
 
 *Open to collaborations and postdoc opportunities.*Nkiruka-Theresa-Nnadozie-git-confi
